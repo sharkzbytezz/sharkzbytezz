@@ -20,7 +20,7 @@ huge pearl kinnie, shes me literally almost every way!
 ![picmix com_2741891](https://github.com/user-attachments/assets/bdbd8c01-8d88-40d2-a652-2d9f7bce3535)
 
 
-![picmix com_1726857](https://github.com/user-attachments/assets/9aebc027-0e30-428a-90e3-c22d5a9a1104)
+![picmix com_1726857](https://github.com/user-attachments/assets/9aebc027-0e30-428a-90e3-c22d5a9a1104) ◆
 
 
 
