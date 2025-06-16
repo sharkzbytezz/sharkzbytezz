@@ -2,7 +2,7 @@
 
 ![](https://github.com/user-attachments/assets/fad7390d-dab1-476d-adc3-ca55dc3e2031) 
 
-i love gore, i think its pretty cool . im INSANE for vampires, i loved them since i was 11 ! ( for real ! )
+i love gore, i think its pretty cool . im INSANE for vampires and dragons, i loved them since i was 11 ! ( for real ! ).
 
 i am also a pretty big fan of pokemon !!! i really love fairy types . but i love other types too!
 
